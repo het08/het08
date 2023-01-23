@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Het Shah.<br>I'm freelancer as a website developer working with the brands like Sunrise Home Solutions & Mulberry Silks Ltd.<br>Every day exploring something new<br>You can reach me at https://www.het08.com/
+Hi, I'm Het Shah<br>I'm freelancer as a website developer working with the brands like Sunrise Home Solutions & Mulberry Silks Ltd<br>Every day exploring something new<br>You can reach me at https://www.het08.com/
 
 
 ## 🌐 Socials:
